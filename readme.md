@@ -1,0 +1,1 @@
+Projekt który będzie zawierał pracę magisterską
